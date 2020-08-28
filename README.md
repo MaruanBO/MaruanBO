@@ -32,7 +32,7 @@ I open to work, so.. i'm looking for some work international or in Spain and mak
   </a>
  </p>
   
-### My final project
+### Final Degree Project (10)
   
  <p float="left">
   <a href="https://github.com/MaruanBO/switch-home" target="_blank" >
