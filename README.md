@@ -1,8 +1,8 @@
 ### Hi there :wave:
 
-I'm [Marouane](https://www.linkedin.com/in/marouane-boukhriss-b183621aa/), a young boy passionate for change the world and do sport daily from :es: &nbsp;with a strong interest in Open-Source. 🎯
+I'm [Marouane](https://www.linkedin.com/in/marouane-boukhriss-b183621aa/), young genius :es: &nbsp;with a strong interest in Open-Source. 🎯
 
-I open to work, so.. i'm looking for some work international or in Spain and making awesome things, learning the most advanced programmations skills :muscle: :brain:
+Learning the most advanced programmations skills :muscle: :brain:
 
 
 <p float="left">
