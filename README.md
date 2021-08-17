@@ -1,6 +1,6 @@
 ### Hi there :wave:
 
-I'm [Marouane](https://www.linkedin.com/in/marouane-boukhriss-b183621aa/), young genius :es: &nbsp;with a strong interest in Open-Source. 🎯
+I'm [Marouane](https://www.linkedin.com/in/marouane-boukhriss-b183621aa/), young genius :es: &nbsp;with a strong interest in Open-Source. 🎯. I finished my study with honors. 
 
 Learning the most advanced programmations skills :muscle: :brain:
 
